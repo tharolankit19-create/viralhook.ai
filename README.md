@@ -1,1 +1,0 @@
-# viralhook.ai
